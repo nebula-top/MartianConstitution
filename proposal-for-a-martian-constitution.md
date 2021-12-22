@@ -1,3 +1,5 @@
+PROPOSAL FOR A MARTIAN CONSTITUTION
+
 Preamble of the Martian Constitution
 
 ARTICLE 1: The Republic of Mars is a Federation. Each State on Earth is to be assigned a Federated State of the Republic of Mars. The distribution of the Federated States will be made equally between each State on Earth.
